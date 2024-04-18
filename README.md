@@ -1,0 +1,1 @@
+design a  medal for football team " Sports Meet Up " written on centre And " S.M.S AGA KHAN SCHOOL" written on the edges on it nothing else written on it .medal should be realistic and simple font should be simple and same as shown in inverted commas 
